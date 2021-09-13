@@ -1,1 +1,1 @@
- 👋 Hi, I’m @RyuHosei
+ 👋 Konnichiwa, I’m @RyuHosei
